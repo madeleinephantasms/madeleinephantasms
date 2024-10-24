@@ -2,10 +2,10 @@
 <p align="center"><img src="https://files.catbox.moe/x7fqoy.png" width="600">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"> THE⠀ 𝐃𝐄𝐀𝐓𝐇⠀ OF MARK HEATHCLIFF. ⠀
+<p align="center"> THE⠀ 𝐃𝐄𝐀𝐓𝐇⠀ OF CASSIDY TREACHER. ⠀
     
-<p align="center"><img src="https://files.catbox.moe/w3idxt.jpeg" width="440">
-<p align="center">MARK or BAT !  𓏵 dni fake sys !
+<p align="center"><img src="https://file.garden/Zm35mUe3DlTMr-h_/Untitled798_20241023204232.png" width="440">
+<p align="center">bonbon or BAT !  𓏵 int freely
 
 
 <h1 align="center"></[sparkler](https://neospring.cc/@rotinparadise)>
