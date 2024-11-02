@@ -1,11 +1,11 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"><img src="https://files.catbox.moe/x7fqoy.png" width="600">
+<p align="center"><img src="https://files.catbox.moe/59xuvb.png" width="600">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"> THE⠀ 𝐃𝐄𝐀𝐓𝐇⠀ OF CASSIDY TREACHER. ⠀
+<p align="center"> JUST⠀ U⠀ WAIT & U'LL ⠀SEE⠀THAT⠀UR⠀SWIMMING⠀WITH⠀W/⠀SHARKS ⠀
     
-<p align="center"><img src="https://file.garden/Zm35mUe3DlTMr-h_/Untitled798_20241023204232.png" width="440">
-<p align="center">bonbon or BAT !  𓏵 int freely
+<p align="center"><img src="https://files.catbox.moe/nw6tc9.png" width="440">
+<p align="center">CUTEGUY or BAT !  𓏵 int freely
 
 
 <h1 align="center"></[sparkler](https://neospring.cc/@rotinparadise)>
@@ -18,7 +18,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-<p align="center"><img src="https://files.catbox.moe/gfmvzd.png" width="600">
+<p align="center"><img src="https://files.catbox.moe/r263yd.png" width="600">
 
 
 
