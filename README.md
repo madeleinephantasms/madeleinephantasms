@@ -1,24 +1,24 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"><img src="https://files.catbox.moe/037wmh.png" width="600">
+<p align="center"><img src="https://files.catbox.moe/4trol2.png" width="600">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"> 𝐘𝙤𝙪'𝙧𝙚 𝙈𝙄𝙉𝙀! ⠀
+<p align="center"> #2 . . That Coward . ⠀
     
-<p align="center"><img src="https://files.catbox.moe/h8w021.png" width="440">
-<p align="center">EMIL or MAFI 𓏵 intj
+<p align="center"><img src="https://files.catbox.moe/xqlb1b.png" width="440">
+<p align="center">kindness or emil 𓏵 theythem
 
 
 <h1 align="center"></[neospring](https://neospring.cc/@mafioso)>
   
 
 [![](https://64.media.tumblr.com/2683c9d7b0eab72bb9ff1b211eeb4677/5baff56e2a8778f3-87/s75x75_c1/8b11901814604d895a810ff5891a0ccf1655f54f.gifv
-)](https://rentry.co/scotoma)
+)](https://rentry.co/telamid)
 ✩  [![](https://files.catbox.moe/8ojruc.gif
 )](https://neospring.cc/@mafioso)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-<p align="center"><img src="https://files.catbox.moe/037wmh.png" width="600">
+<p align="center"><img src="https://files.catbox.moe/v86q07.png" width="600">
 
 
 
