@@ -4,8 +4,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center"> #2 . . That Coward . ⠀
     
-<p align="center"><img src="https://files.catbox.moe/xqlb1b.png" width="440">
-<p align="center">kindness or emil 𓏵 theythem
+<p align="center"><img src="https://files.catbox.moe/7rbzm5.png" width="440">
+<p align="center">tippyship or cohen 𓏵 theythem
 
 
 <h1 align="center"></[neospring](https://neospring.cc/@mafioso)>
