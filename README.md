@@ -1,6 +1,6 @@
 
-<p align="center"><img src="https://files.catbox.moe/7rbzm5.png" width="440">
-<p align="center">boi wgatr the heck  boi
+<p align="center"><img src="https://files.catbox.moe/gwgujc.gif" width="440">
+<p align="center"> its all yours
 
 
 
